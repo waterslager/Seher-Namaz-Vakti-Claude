@@ -1,2 +1,2 @@
-# Namaz-Vakitleri-Modern-Ertan
-Namaz-Vakitleri-Modern
+Seher Namaz Vakti Claude
+Seher Namaz Vakti Claude
